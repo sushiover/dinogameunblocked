@@ -1,1 +1,2 @@
 # dinogameunblocked
+educational purposes only
